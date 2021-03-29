@@ -1,3 +1,3 @@
-# VincidaDesigns.github.io
-https://corvus.tk
- covid website
+# macavitys.github.io
+https://shylekhvedi.ml
+ shylekh serine ookanulla site.
